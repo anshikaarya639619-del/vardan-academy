@@ -1,2 +1,2 @@
-# vardan-academy
+# SurajAN_95
 Premium PDF Store
